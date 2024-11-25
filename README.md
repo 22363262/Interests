@@ -1,6 +1,6 @@
 # Interests
 
-📚 Physics 
-🐎 Horses and matched betting 
-📈 Stocks, crypto and betting markets 
-🖥 Coding
+-📚 Physics 
+-🐎 Horses and matched betting 
+-📈 Stocks, crypto and betting markets 
+-🖥 Coding
